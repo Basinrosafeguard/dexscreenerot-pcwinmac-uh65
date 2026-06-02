@@ -1,4 +1,4 @@
-# 
+# Premium dexscreener sniper bot templates for Mac OS | Advanced dexscreener sniper bot templates for PC Windows. Featuring failed tx recovery and rug pull detection — optimized for maximum performance on every platform.
 
 
 
